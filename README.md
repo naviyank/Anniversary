@@ -1,3 +1,3 @@
 # Anniversary Webpage
 
-This is for my parter that I love very much. 
+This is for my parter whom I love very much. 
